@@ -1,2 +1,0 @@
-# Technical-Education
-Technical Education
